@@ -7,4 +7,4 @@
 - 🌕 How to reach me: chenmoonmo@gmail.com
 - 🐽 Pronouns: he/him/moon/猛蚁
 
-![chenmoonmo](https://user-images.githubusercontent.com/36295999/184520888-f3f73cf6-adbc-4eec-aa2a-8a9e043e4d11.svg)
+![chenmoonmo](https://ssr-contributions-ckzb5dj3p-catsjuice.vercel.app/_/chenmoonmo?chart=3dbar&scale=1.7&light=3&gradient=true&animation=wave&animation_duration=3&animation_wave_center=0_0&format=svg&theme=blue&widget_size=small&dark=true)
