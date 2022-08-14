@@ -6,3 +6,4 @@
 - 💬 Ask me about my cats
 - 📫 How to reach me: chenmoonmo@gmail.com
 - 😄 Pronouns: he/him/moon/猛蚁
+![chenmoonmo](https://user-images.githubusercontent.com/36295999/184520888-f3f73cf6-adbc-4eec-aa2a-8a9e043e4d11.svg)
