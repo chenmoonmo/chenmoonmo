@@ -5,4 +5,5 @@
 - 🐧 I’m looking for a geeky work environment
 - 🦦 Ask me about my cats
 - 🌕 How to reach me: chenmoonmo@gmail.com
-- 🐽 Pronouns: he/him/moon/ 猛蚁
+- 🐽 Pronouns: He/Him/Moon/猛蚁
+- 🌁 Fun Fact: All of the above are my favorite emoji
