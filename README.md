@@ -6,4 +6,4 @@
 - 🦦 Ask me about my cats
 - 🌕 How to reach me: chenmoonmo@gmail.com
 - 🐽 Pronouns: He/Him/Moon/猛蚁
-- 🌁 Fun Fact: All of the above are my favorite emoji
+- 🌁 Fun Fact: All of the above are my favorite emojis
