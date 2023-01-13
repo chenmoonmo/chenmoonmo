@@ -1,5 +1,6 @@
 ### Hi there 👋
-- 🦹🏻 I’m currently working as a Front-end developer
+- 🦹🏻 I'm currently working as a Front-end developer
+- 🦀 I'm learning Rust recently
 - 🦦 Ask me about my cats
 - 🌕 How to reach me: chenmoonmo@gmail.com
 - 🐽 Pronouns: He/Him/Moon/猛蚁
